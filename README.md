@@ -1,1 +1,0 @@
-# salkcin.github.io
